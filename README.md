@@ -1,1 +1,1 @@
-# CRIANDO-UMA-NOVA-AVENTURA
+Uma aventura imperdível está a sua espera.
